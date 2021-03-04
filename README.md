@@ -1,1 +1,1 @@
-# coyuntura-macroeconomica
+# Coyuntura macroeconómica
